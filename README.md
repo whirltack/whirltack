@@ -11,7 +11,9 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
 ![.](https://github.com/user-attachments/assets/b9e1d961-dec5-495e-84d4-d21456586912)
 ![.](https://github.com/user-attachments/assets/24103597-9c85-42da-b483-5b6ae7cd551c)

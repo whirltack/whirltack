@@ -26,7 +26,7 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 ###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)* - *[ DNI ](#DNI)* - *[ Honorable Mentions ](#Honorable-Mentions)*
 
-##### $${\color{lightgreen}External \space Links}$$
+# $${\color{lightgreen}External \space Links}$$
 #### https://typisttango.straw.page/
 
 

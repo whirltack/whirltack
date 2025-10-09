@@ -13,6 +13,8 @@ i'm kind of nervous... please be patient!
 i dont mind interacting!!!! please be nice though :(
 DO NOT BE WEIRD.
 
+![.](https://github.com/user-attachments/assets/f3661971-93b7-413b-90c3-9b5b48803a3b)
+
 # Interests
 
 here are some of the fandoms/webcomics/games i like!!
@@ -30,5 +32,5 @@ i'm not sure about roleplaying... i dont roleplay... sorry!!
 INT always!!!! whispering is okay but i might not always see the notification!!!!
 thank you!!! <:)
 
-![.]![image](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
+![.](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
 

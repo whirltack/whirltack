@@ -22,6 +22,8 @@ i love to make friends!!! play play play!!!! yayyyyyy!!!!!!
 
 i dont mind interacting!!!! please be nice though :(
 
+he/him... woke AF.... the WOKER.. why so queerious?
+
 DO NOT BE WEIRD. DO NOT.
 
 

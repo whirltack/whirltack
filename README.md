@@ -29,7 +29,7 @@ my profile!!!!!!!!! yay!!!!!!
 
 ### > *What will the name of this young man be?*
 
-### > <ins>Enter Name.</ins>
+#### $\textcolor{blue}{\textsf{> Enter Name.}}$
 ![.](https://github.com/user-attachments/assets/3db14194-0b45-46dd-b16c-1b1fd01fb661)
 
 

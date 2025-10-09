@@ -4,7 +4,7 @@
 # $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}timidTypist's \space \color{lightblue}profile!!!}$$
 
 
-my profile!!!!!!!!! yay!!!!!!
+welcome to my profile!!!!!!!!! yay!!!!!!
 
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 

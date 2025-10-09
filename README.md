@@ -18,6 +18,8 @@ hi..... i'm typist! you can call me tango too!
 
 i'm kind of nervous... please be patient!
 
+i love to make friends!!! play play play!!!! yayyyyyy!!!!!!
+
 i dont mind interacting!!!! please be nice though :(
 
 DO NOT BE WEIRD. DO NOT.
@@ -58,9 +60,15 @@ c+h if you would like!!! i love to play and have fun!!! i dont mind!!!
 
 i'm not sure about roleplaying... i dont roleplay... sorry!!
 
+come and talk!!! i dont bite!!! but i am timid!!! (like the name suggests.....heh.. laugh guys. Please) please be nice!
+
 INT always!!!! whispering is okay but i might not always see the notification!!!!
 
 thank you!!! <:)
 
 ![.](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
 
+
+
+p.s. 
+go show some love to my goat @Saphicorn

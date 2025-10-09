@@ -22,13 +22,13 @@ my profile!!!!!!!!! yay!!!!!!
 
 ###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)*
 
-![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
 
-# > *What will the name of this young man be?*
 
-### > <ins>Enter Name.</ins>
+> *What will the name of this young man be?*
 
-![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
+> <ins>Enter Name.</ins>
+
+
 
 # About Me
 

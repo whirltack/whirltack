@@ -1,6 +1,6 @@
 ![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
 
-# timidTypist
+# timidTypist #00ff3e
 
 my profile!!!!!!!!! yay!!!!!!
 
@@ -69,6 +69,14 @@ thank you!!! <:)
 ![.](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
 
 
+# DNI
+> proship/darkship (its not that i hate you!!! but please dont interact!! it makes me uncomfortable!)
+> + basic DNI! terfs, homophobes, racists, etc! leave my page please!!!!!
 
-p.s. 
-go show some love to my goat @Saphicorn
+
+i freely block! dont be offended!!! i'd just rather not interact!!!
+
+
+> p.s.
+>
+> go show some love to my goat @Saphicorn

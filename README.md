@@ -81,4 +81,4 @@ i freely block! dont be offended!!! i'd just rather not interact!!!
 # Honorable Mentions
 > p.s.
 >
-> go show some love to my goat @Saphicorn/Saphicorn
+> go show some love to my goat @Saphicorn

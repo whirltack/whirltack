@@ -23,12 +23,19 @@ DO NOT BE WEIRD. DO NOT.
 # Interests
 
 here are some of the fandoms/webcomics/games i like!!
+
 **Homestuck**
+
 **Portal 1 + 2**
+
 **Hollow Knight**
+
 **Uma Musume**
+
 **Phighting**
+
 **Ultrakill**
+
 ***AND MUCH MORE!***
 
 # Ponytown Info

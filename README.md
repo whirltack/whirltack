@@ -117,9 +117,10 @@ thank you!!! <:)
 ![.](https://github.com/user-attachments/assets/5518a551-8621-4512-aa61-bc0e5b9c37f5)
 
 # My Websites
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 ### $${\color{lightgreen}typistTango's \space Strawpage}$$
 #### > https://typisttango.straw.page/
-
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
 # Honorable Mentions
 > p.s.

@@ -26,6 +26,9 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 ###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)* - *[ DNI ](#DNI)* - *[ Honorable Mentions ](#Honorable-Mentions)*
 
+##### Extra Links
+#### $${\color{lightgreen}https://typisttango.straw.page/}$$
+
 
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 

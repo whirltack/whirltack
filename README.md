@@ -73,6 +73,8 @@ c+h if you would like!!! i love to play and have fun!!! i dont mind!!!
 
 i'm not sure about roleplaying... i dont roleplay... sorry!!
 
+i dont know what covering is. what is covering.
+
 come and talk!!! i dont bite!!! but i am timid!!! (like the name suggests.....heh.. laugh guys. Please) please be nice!
 
 INT always!!!! whispering is okay but i might not always see the notification!!!!

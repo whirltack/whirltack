@@ -32,14 +32,9 @@ he/him... woke AF.... the WOKER.. why so queerious?
 DO NOT BE WEIRD. DO NOT.
 
 
-![.](https://github.com/user-attachments/assets/f3661971-93b7-413b-90c3-9b5b48803a3b)
-
-
 # Interests
 
-## here are some of the fandoms/webcomics/games i like!!
-
-- **Homestuck**
+## here are some of the fandoms/games i like!!
 
 - **Portal 1 + 2**
 

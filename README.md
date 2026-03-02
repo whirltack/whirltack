@@ -84,8 +84,8 @@ thank you!!! <:)
 
 # My Websites
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
-### $${\color{lightgreen}typistTango's \space Strawpage}$$
-#### > https://typisttango.straw.page/
+### $${\color{lightgreen}typist's \space Strawpage}$$
+#### > https://whirl-type.straw.page/
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
 # Honorable Mentions
